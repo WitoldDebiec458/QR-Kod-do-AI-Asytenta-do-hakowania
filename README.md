@@ -1,0 +1,1 @@
+# QR-Kod-do-AI-Asytenta-do-hakowania
